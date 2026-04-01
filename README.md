@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @Rohit-katkar2003<br>👀 I’m interested in AI,deep learning ,machine learning<br>🌱 I’m currently learning Data science and AI<br>💥Currently i am working as AI/ML Enginner<br>💞️ I’m looking to collaborate on AI communities<br>📫 How to reach me katkarrohit23@gmail.com
+👋 Hi, I’m @Rohit-katkar2003<br>👀 I’m interested in AI,deep learning ,machine learning<br>🌱 I’m currently learning Data science and AI<br>💥Currently i am working as AI/ML Enginner<br>💞️ I’m looking to collaborate on AI communities<br>📫 How to reach me katkarrohit203@gmail.com
 
 
 ## 🌐 Socials:
